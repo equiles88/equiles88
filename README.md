@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my pets
 - 📫 How to reach me: emilyquiles1@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I've been skydiving!
+- ⚡ Fun fact: I've been skydiving!! I love thrills
 -->
